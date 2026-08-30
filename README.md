@@ -13,21 +13,14 @@
 <details>
 <summary><b> me/byi/bybmf/infos </b></summary>
 
-<br>
+------
+
+Hello! Call me Yom ou Chersie, any names i have or get called by otherwise are for closer friends only. I am a heavy kin of many, i am very fond of other kinnies and would love if we interacted.
+
+I am a extremely shy person at first 
 
 <div align="center">
 
-<table>
-<tr>
-<td align="center">
-
-<a href="https://bannysupermanbyidniptinfos.straw.page">
-<b>CLICK HERE!</b>
-</a>
-
-</td>
-</tr>
-</table>
 
 </div>
 
@@ -41,7 +34,7 @@
 <img src="https://i.postimg.cc/nVkWR6JW/6bc3e1107438ab9860338a4f25ddf3e1.gif" width="40%"> 
 
 
-my cutieful friends and how *I SEE THEM* ok? 
+my cutieful friends ily guys sm!
 
 <br>
  
