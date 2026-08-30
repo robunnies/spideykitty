@@ -11,7 +11,7 @@
 <div align="center">
 
 <details>
-<summary><b> byi/dni/infos </b></summary>
+<summary><b> me/byi/bybmf/infos </b></summary>
 
 <br>
 
@@ -44,16 +44,16 @@
 my cutieful friends and how *I SEE THEM* ok? 
 
 <br>
-GHOUL 
+ 
 
-<a href="https://github.com/JAWS0DEATH">@INVINCIBLE/BATMANBEYOND</a><br>
-<img src="https://i.postimg.cc/sf7ZJcPb/In-Shot-20260826-071358615.jpg" width="150">
+<a href="https://github.com/NorthernShine">AUROURA</a><br>
+<img width="150" alt="pony-town-oh that aurora_ pure aura--dance-4-blinking-padded-6x" src="https://github.com/user-attachments/assets/1c959fe9-7584-4754-90a4-62c11ec18489" />
 
 <br>
-JACK
 
-<a href="https://github.com/SINISTERMARKLOVESU">@SINISTER MARK</a><br>
-<img src="https://i.postimg.cc/L646ZBxT/8220bf261dafc19e195327cca8dbe982.jpg" width="150">
+<a href="https://github.com/escapeartists">FRIDAY</a><br>
+<img width="150" alt="griefer" src="https://github.com/user-attachments/assets/f8ea599a-2318-43f2-83d9-c93846af4b24" />
+
 
 <br>
 
