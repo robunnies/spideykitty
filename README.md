@@ -10,7 +10,57 @@
 
 <div align="center">
 
-[ATABOOK](https://rakviyem.atabook.org) [STRAWPAGE](https://directoryviyem.straw.page) [RENTRY](https://rentry.co/rakviyem) [PRNS](https://en.pronouns.page/@rakviyem)
+<details>
+<summary><b> byi/dni/infos </b></summary>
+
+<br>
+
+<div align="center">
+
+<table>
+<tr>
+<td align="center">
+
+<a href="https://bannysupermanbyidniptinfos.straw.page">
+<b>CLICK HERE!</b>
+</a>
+
+</td>
+</tr>
+</table>
+
+</div>
+
+</details>
+
+
+<details>
+<summary>▶ friends </summary>
+
+------
+<img src="https://i.postimg.cc/nVkWR6JW/6bc3e1107438ab9860338a4f25ddf3e1.gif" width="40%"> 
+
+
+my cutieful friends and how *I SEE THEM* ok? 
+
+<br>
+GHOUL 
+
+<a href="https://github.com/JAWS0DEATH">@INVINCIBLE/BATMANBEYOND</a><br>
+<img src="https://i.postimg.cc/sf7ZJcPb/In-Shot-20260826-071358615.jpg" width="150">
+
+<br>
+JACK
+
+<a href="https://github.com/SINISTERMARKLOVESU">@SINISTER MARK</a><br>
+<img src="https://i.postimg.cc/L646ZBxT/8220bf261dafc19e195327cca8dbe982.jpg" width="150">
+
+<br>
+
+
+[Hi plz bmf guys ill add u onto here 2]
+
+------
 
 </div>
 
