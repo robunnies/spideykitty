@@ -17,14 +17,21 @@
 
 Hello! Call me Yom ou Chersie, any names i have or get called by otherwise are for closer friends only. I am a heavy kin of many, i am very fond of other kinnies and would love if we interacted.
 
+I usually hang around the bakery with friend(s) or spawn, i also like 2 hang around sometimes but my hyperfixations move on quickly! This is all in safe server #1. 
+
 I am a extremely shy person and will not interact first immediately (unless your a friend of mine) or might even come off as dry at first but trust me when we get 2 know about eachother a lot more i swear i'll end up striking a long conversation! I will not accept friend requests or follow you back on git immediately unless i find you awesome or you we're fun to cuddle / interact with. And trust me i will do it again on sight/s. 
 
 Random movement when afking or off-tab is likely caused by my cats, if this does end up happening (when away or sleeping) just expect me to disconnect after some time till i get back.
 
 Just so you know, i do not have a specific dni but this does not mean i will interact with anyone!
 
+------
+FANDOMS (WIP)
+------
+MARVEL (Spiderman)
 <div align="center">
-
+  
+<img width="150" alt="pony-town-larpester spiderman-dance-4-blinking-padded-6x" src="https://github.com/user-attachments/assets/0d7cb6de-0ca7-4ad1-b74b-863b72c66781" />
 
 </div>
 
