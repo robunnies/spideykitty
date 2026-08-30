@@ -73,5 +73,5 @@ my cutieful friends ily guys sm!
 <p align="center">
 c*h is enc even if my name says otherwise!
 <p align="center">
-shy when int . usually making ponies so w2i is enc
+whisp 2 get attention from me . usually making ponies so w2i is sometimes enc
 
