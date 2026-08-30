@@ -17,7 +17,11 @@
 
 Hello! Call me Yom ou Chersie, any names i have or get called by otherwise are for closer friends only. I am a heavy kin of many, i am very fond of other kinnies and would love if we interacted.
 
-I am a extremely shy person at first 
+I am a extremely shy person and will not interact first immediately (unless your a friend of mine) or might even come off as dry at first but trust me when we get 2 know about eachother a lot more i swear i'll end up striking a long conversation! I will not accept friend requests or follow you back on git immediately unless i find you awesome or you we're fun to cuddle / interact with. And trust me i will do it again on sight/s. 
+
+Random movement when afking or off-tab is likely caused by my cats, if this does end up happening (when away or sleeping) just expect me to disconnect after some time till i get back.
+
+Just so you know, i do not have a specific dni but this does not mean i will interact with anyone!
 
 <div align="center">
 
